@@ -1,0 +1,2 @@
+# MM-Beast
+ \e w
